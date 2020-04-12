@@ -1,0 +1,1 @@
+# Fizik-9-3.-Hafta-odev
